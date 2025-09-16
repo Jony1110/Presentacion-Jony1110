@@ -45,8 +45,7 @@ Actualmente profundizando en:
 ## 📫 Cómo contactarme
 
 Puedes escribirme a través de:
-- Email: *(tu email si deseas ponerlo)*
-- [LinkedIn](https://www.linkedin.com/) *(opcional si tienes)*
+- Email: jonathanjosefriasmartinez11@gmail.com
 
 ---
 
